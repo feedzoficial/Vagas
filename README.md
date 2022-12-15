@@ -6,6 +6,6 @@ Para acessar, é só ir em "issues"! Todas as descrições com link para se cand
 
 Não se esqueça da nossa página de carreiras: https://www.feedz.com.br/vagas/
 
-📌Grupo no Whats de vagas tech na Feedz: https://bit.ly/whatsfeedz 
+📌Grupo no Whats de vagas tech na Feedz: https://chat.whatsapp.com/IXfK0zcRsUoDusn3nP6Yp8
 
 Esperamos te ver em nosso processo! Vem pra Feedz! 🚀
